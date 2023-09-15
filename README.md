@@ -1,1 +1,1 @@
-# Hongjing_I-310D
+# I-310D
